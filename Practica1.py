@@ -1,1 +1,0 @@
-# CN Practica 1
